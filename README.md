@@ -1,1 +1,0 @@
-# TATA-POWER-EV-MOTOR-
